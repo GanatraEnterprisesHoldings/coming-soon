@@ -1,1 +1,1 @@
-# coming-soon
+# GEH Landing Page (Coming Soon)
